@@ -1,2 +1,0 @@
-- 跨太平洋伙伴全面进步协定（英語：Comprehensive and Progressive Agreement for Trans-Pacific Partnership，缩写：CPTPP）
-- CPTPP 名称之所以冠以「全面与进步」，是因为它除了致力于降低关税和消除非关税贸易壁垒，还在竞争中性、知识产权、环境保护、劳工权益、政府采购等多个方面提出了高要求。
