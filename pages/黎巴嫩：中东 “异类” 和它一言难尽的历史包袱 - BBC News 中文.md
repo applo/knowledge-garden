@@ -1,5 +1,5 @@
 - > 本文由 [简悦 SimpRead](http://ksria.com/simpread/) 转码， 原文地址 [www.bbc.com](https://www.bbc.com/zhongwen/simp/world-53735325)
-- > 黎巴嫩是个什么样的国家？中东奇葩、人类文明和宗教发源地之一，得天独厚为什么却多灾多难？
+- > [[黎巴嫩]] 是个什么样的国家？中东奇葩、人类文明和宗教发源地之一，得天独厚为什么却多灾多难？
 - 2020 年 8 月 16 日
 - ![](https://ichef.bbci.co.uk/news/640/cpsprodpb/1820F/production/_113913889_lbn_beirutcorniche2_afp.jpg)
 - 贝鲁特曾经被称为 “中东小巴黎”，黎巴嫩也有“中东瑞士” 之称
